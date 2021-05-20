@@ -1,6 +1,7 @@
 #AMIGOS
 
 ##Ingredientes:##
+
 - Amor
 - Tesão
 - Gratidão
@@ -8,4 +9,9 @@
 
 ## Modo Sexo Unido
 - *LeoBola*
+
 - *Fellipesexo*
+
+- *O curioso*
+
+  
